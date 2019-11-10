@@ -1,0 +1,2 @@
+# maricar
+Maricar Auditor is a 19 year Engineering student, aspiring to become an Electronics Engineer in the near future. She is studying in University of Santo Tomas and graduated Senior High School in the same university. She likes watching Kdramas and random movies whenever she's bored. She likes Math so much but sometimes, Math doesn't like her. Computer Programming is one of her favorites as she finds programming both challenging and exciting. 
